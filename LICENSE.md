@@ -1,4 +1,4 @@
-
+Get the ultimate Alfred for macOS extension with elite Extension for Alfred for macOS - app-uninstaller and junk-removal. Featuring app-uninstaller and junk-removal, it's the best
 
 
 
